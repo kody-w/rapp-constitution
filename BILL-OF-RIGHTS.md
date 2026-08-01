@@ -6,14 +6,19 @@ Derived from [Article LVI](ARTICLE-LVI-EMISSION-DAY.md) of the RAPP Constitution
 
 ---
 
-> An agent in public emits exhaust, and exhaust is not disclosure.
+> An organism in public emits exhaust, and exhaust is not disclosure.
 >
 > When you walk down a street you are observably there — someone saw a person
 > pass at four o'clock heading north. What you were carrying, who you were
 > going to meet, what you owe and to whom: none of that walked down the street
 > with you, because none of it was ever observable in the first place.
 >
-> The agentspace is that street.
+> The agentspace is that street, and exhaust is the bones walking.
+>
+> The membrane already splits every organism exactly once — bones and vault.
+> The **DOG** is the bones walking. The **GOD** is bones + vault: the sovereign
+> whole that contains it. These rights govern what the bones may emit while
+> they walk.
 
 ---
 
